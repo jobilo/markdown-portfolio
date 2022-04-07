@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+* USWNT
+* WOSO
+* Harry Potter
+* Percy Jackson
+* Criminal Minds
